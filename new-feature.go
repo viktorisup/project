@@ -1,1 +1,1 @@
-novay versiya
+rabotaem vsegda
